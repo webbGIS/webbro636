@@ -2,4 +2,4 @@
 - I’m interested in GIS applications in water resources managment, and environmental science. 
 - I’m currently working towards a B.S. in Environmental Science.
 - I’m looking to collaborate on ...
-- How to reach me robert.a.webb(at)me.com
+- How to reach me: robert.a.webb(at)me.com
